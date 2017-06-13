@@ -1,0 +1,2 @@
+# ideas
+Things for myself
